@@ -1,2 +1,2 @@
-# UFO/ET is Not Forgotten
-The UFO/ET enigma that SHOULD not be forgotten. Thanks to the CIA it mostly has been. Until NOW.
+# UFO/ET Enigma Not Forgotten
+The UFO/ET enigma SHOULD not be forgotten. Thanks to the CIA it mostly has been. Please, let's not let that happen any longer.
